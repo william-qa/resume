@@ -1,5 +1,4 @@
-# William Yu  
-**Automation QA Developer**  
+  **Automation QA Developer**  
 📞 514-690-6078  
 ✉️ [William_y@outlook.com](mailto:William_y@outlook.com)  
 📍 Greater Montreal, QC, CA  
